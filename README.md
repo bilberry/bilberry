@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @bilberry
+- 👀 I’m interested in history
+- 🌱 I’m currently learning Spanish 🤣
